@@ -13,7 +13,7 @@ live laugh love pace and rosy and fleetway and shadow and sonic and niku and pac
 
 fav ships: pasy, sonadow, sonamy, silvaze, shadouge, knuxouge, spamtenna, majinx, and willuna??? (willow x luna) idk what to call that..
 
-fandoms: sth/sonic.exe, fnaf, deltarune, tally hall, chonny jash, will wood, invander zim, dandy's world, slopsaken (/j), and more i think
+fandoms: sth/sonic.exe, fnaf, deltarune, tally hall, chonny jash, will wood, invander zim, dandy's world, slopsaken (/j), and more i think..
 
 thats all for today. come back soon?
 
